@@ -1,2 +1,0 @@
-# dtstudios
-Design Thinking Studios
